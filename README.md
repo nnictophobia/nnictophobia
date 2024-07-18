@@ -16,5 +16,5 @@ homophobic , racist , etc.
 ## STAN LiST!
 [< **stray kids** 3](https://open.spotify.com/intl-es/track/30YeoWowzWypZNSl6WNXAR?si=342076bb82394bf5) __(danceracha biased)__ cigarettes after sex **tomorrow by together** bts **enhypen** mitski **billie eilish** newjeans
 ## GAMES!
-roblox (specially arsenal) **valorant** genshin impact **undertale** minecraft **the sims 4** pony town
+**< life is strange 3** the last of us **roblox** (specially arsenal) **valorant** genshin impact **undertale** minecraft **the sims 4** pony town
 ![IMG_3525](https://github.com/user-attachments/assets/1d79892b-3241-40c8-9a45-dae3a8dcf1d6)
