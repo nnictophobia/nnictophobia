@@ -1,6 +1,6 @@
 ![IMG_3528](https://github.com/user-attachments/assets/6d30dd8a-3b73-4fca-a8d8-2e04bb91068a)
 
-## iván's info. . .
+## info. . .
 **he**/they | venezuelan | **16** y/o | **esp**/eng 
 ## BEFORE YOU iNTERACT!
 i can talk a lot or don't talk at all, i also yap a lot about my special interests sometimes.
